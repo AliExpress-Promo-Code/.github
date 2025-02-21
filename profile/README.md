@@ -1,6 +1,5 @@
 # AliExpress Promo Code (($60 OFF)) February 2025
 
-## Introduction
 Top AliExpress Promo Codes for February 2025. Use AliExpress coupon codes to save up to $60 on your order. If you’re shopping in 2025, we’ve got you covered with the latest AliExpress promo codes that will help you get the best discounts.
 
 ## Latest AliExpress Promo Codes for 2025
